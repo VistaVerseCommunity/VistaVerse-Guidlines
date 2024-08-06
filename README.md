@@ -18,4 +18,6 @@
 
 • No Cyberstalking,  Cyberbullying: Cyberstalking, cyberbullying, doxing, or any form of online harassment is strictly prohibited. Do not attempt to obtain or distribute personal information to harm or intimidate others.
 
+• Personal Messages: Do not send personal messages without consent. do not cause problems in personal messages or the room, eg: causing drama, sharing misinformation or contributing to spreading rumors.
+
 • Follow Platform Rules: Adhere to any additional rules or terms of service set by the platform hosting the community.
