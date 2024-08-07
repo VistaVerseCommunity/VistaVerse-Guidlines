@@ -20,4 +20,10 @@
 
 • Personal Messages: Do not send personal messages without consent. do not cause problems in personal messages or the room, eg: causing drama, sharing misinformation or contributing to spreading rumors.
 
+• No External Drama: Bringing external conflicts or drama into the room is not permitted. This includes discussing issues with other users outside the room or attempting to involve other room members in disputes.
+
+• No Alt Accounts: Users are prohibited from operating multiple accounts within the room. Any user found to be using an alt account will be subject to disciplinary action, including potential banning.
+
+• No Alt Account Discussion: Discussing the use of alt accounts, whether for oneself or others, is strictly prohibited. This includes defending the use of alt accounts or encouraging others to use them.
+
 • Follow Platform Rules: Adhere to any additional rules or terms of service set by the platform hosting the community.
